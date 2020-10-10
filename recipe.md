@@ -1,0 +1,1 @@
+       Take puffed rice (churmure) and farsan in a vessel. add 1 chopped onion and 1 chopped tomato in that. Add littli shev and salted groundnuts in that. aed chilli as per your. Add grinded chilli as per your taste and at last add tamrind paste and mix it. Serve it in a plate and decorate it with shev,some chillie powder and corriender.
